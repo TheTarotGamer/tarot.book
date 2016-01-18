@@ -13,7 +13,12 @@ Frieda Harris. She was a disciple of Aleister Crowley and also a member
 of the Ordo Templi Orientis. She was versed in the I-Ching as her choice
 of divination.
 
-The pair worked tirelessly on the creation of the 78 paintings that
+The pair worked tirelessly on the creation of the 80 paintings that
 would eventually become the Thoth tarot deck. Harris and Crowley both
 died before the cards could be published. They never saw the cards in
 print.
+
+Today we find Tarot cards nearly everywhere. You can find them in small stores
+tucked away in the mall, online, or at your local big name book store. If you
+decided to purchase a tarot card deck, you would be able to do so in short
+order almost anywhere in the world.
